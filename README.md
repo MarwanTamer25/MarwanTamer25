@@ -13,7 +13,7 @@
   
 📧 Let's Connect:
   Keen on networking and collaboration in tech. Feel free to connect via email: 
- <br/> &emsp; &emsp; &emsp;           Marwan.Tamer2003@hotmail.com  
+ <br/> &emsp; Marwan.Tamer2003@hotmail.com  
   
 
 ### Connect with Me :
